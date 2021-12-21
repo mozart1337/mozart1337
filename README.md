@@ -1,1 +1,1 @@
-vou editar ainda, preguiça
+Welcome to my GitHub, i am mozart 👋
